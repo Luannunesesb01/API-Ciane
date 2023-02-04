@@ -3,6 +3,7 @@
 <hr>
 ### LIFE RESORT
 CAPA
+
 ![capa](https://user-images.githubusercontent.com/116287208/216793324-776d34a8-157a-4131-aeb2-af4f6a9a3601.jpg)
 
 
