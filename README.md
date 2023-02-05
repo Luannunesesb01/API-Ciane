@@ -69,3 +69,112 @@ CAPA
 
 FIM DO Hotel Garvey 
 <hr>
+
+# ALUGUEL SETOR HOTELEIRO NORTE
+
+CAPA
+
+![WhatsApp Image 2022-04-01 at 11 10 06](https://user-images.githubusercontent.com/116287208/216850880-d970ac25-672b-4903-9c5d-9eb58cb01d23.jpeg)
+
+
+![WhatsApp Image 2022-09-15 at 16 57 44 (1)](https://user-images.githubusercontent.com/116287208/216850883-20f31e32-fc88-42b9-aa96-22ff0bf9ff0c.jpeg)
+![WhatsApp Image 2022-09-15 at 16 57 44 (2)](https://user-images.githubusercontent.com/116287208/216850884-93f2e61c-e9ee-4704-94be-0c9c2043368b.jpeg)
+![WhatsApp Image 2022-09-15 at 16 57 44 (3)](https://user-images.githubusercontent.com/116287208/216850885-4d7fd18c-da29-4dc9-a40e-aea520db80f9.jpeg)
+![WhatsApp Image 2022-09-15 at 16 57 44](https://user-images.githubusercontent.com/116287208/216850886-00fac283-3cd5-4425-9f8f-e2cbe74e79cd.jpeg)
+
+FIM ALUGUEL SETOR HOTELEIRO NORTE
+<hr>
+
+### CASA 2 QUARTOS GAMA
+
+CAPA
+
+![capa](https://user-images.githubusercontent.com/116287208/216850919-8f051727-5b3d-4ef0-bc3a-6b5402c8d675.jpeg)
+
+![WhatsApp Image 2023-02-05 at 5 23 18 PM (1)](https://user-images.githubusercontent.com/116287208/216850924-510c3974-224f-42ba-9414-3539557abe45.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 18 PM (2)](https://user-images.githubusercontent.com/116287208/216850925-b19b3e82-d3d3-452a-a9bc-bb5af7a00502.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 18 PM](https://user-images.githubusercontent.com/116287208/216850926-fa4c5eff-0a31-4170-a813-9b3b348d263f.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 19 PM (1)](https://user-images.githubusercontent.com/116287208/216850927-faa07454-9f47-49e4-81ce-3030edec9e8c.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 19 PM (2)](https://user-images.githubusercontent.com/116287208/216850929-b2c43bfa-5904-4ca3-9e82-2d04d6f290c2.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 19 PM](https://user-images.githubusercontent.com/116287208/216850930-5f38750e-fd2a-4af9-9556-a595ca1301cf.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 16 PM (1)](https://user-images.githubusercontent.com/116287208/216850931-7a6e56df-ac65-4e67-aa3c-360aa49bfa09.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 16 PM (2)](https://user-images.githubusercontent.com/116287208/216850932-29b0e5de-05b3-49f0-83b5-acf5b3e39fde.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 16 PM (3)](https://user-images.githubusercontent.com/116287208/216850933-893e722d-996e-4094-a4e1-f232edd7e700.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 16 PM](https://user-images.githubusercontent.com/116287208/216850934-5dc8811c-cb1a-48c4-9f43-9f2fa81abb89.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 17 PM (1)](https://user-images.githubusercontent.com/116287208/216850935-101e4094-2138-4c23-a034-2cc0180ed4fe.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 17 PM (2)](https://user-images.githubusercontent.com/116287208/216850936-2f2bff69-08ec-4f90-a33a-9bd4c26550d8.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 17 PM (3)](https://user-images.githubusercontent.com/116287208/216850937-1de5535f-9bd5-4bfd-8956-8900ddd67aa8.jpeg)
+![WhatsApp Image 2023-02-05 at 5 23 17 PM](https://user-images.githubusercontent.com/116287208/216850938-2174e603-f55b-4e72-9122-6809127367ad.jpeg)
+
+<hr>
+
+### LOJA SETOR LESTE GAMA
+
+capa
+
+
+![capa](https://user-images.githubusercontent.com/116287208/216850957-83067ad2-ca73-4d90-8e0d-d018cc1a962d.jpeg)
+
+
+![WhatsApp Image 2023-02-05 at 5 16 16 PM (1)](https://user-images.githubusercontent.com/116287208/216850964-39b3ecc7-5909-45ff-8f7f-9bf62b8ce8da.jpeg)
+![WhatsApp Image 2023-02-05 at 5 16 16 PM (2)](https://user-images.githubusercontent.com/116287208/216850965-62c4db3e-5a89-4bec-8462-976ab7eb8143.jpeg)
+![WhatsApp Image 2023-02-05 at 5 16 16 PM (3)](https://user-images.githubusercontent.com/116287208/216850968-291ee032-a925-485f-ae47-0a5a9199d215.jpeg)
+![WhatsApp Image 2023-02-05 at 5 16 16 PM](https://user-images.githubusercontent.com/116287208/216850969-4a7e51f9-df1f-4100-838f-e52c0060c079.jpeg)
+
+FIM LOJA SETOE LESTE GAMA
+
+<hr>
+
+SETOR LESTE INDUSTRIAL GAMA
+
+CAPA
+
+![CAPA](https://user-images.githubusercontent.com/116287208/216850995-d2c28819-90a4-419f-81c1-f6ad1371941c.jpeg)
+
+
+![WhatsApp Image 2023-02-05 at 5 06 22 PM (6)](https://user-images.githubusercontent.com/116287208/216851029-efd34c2d-afdc-4148-82c8-a122b0b8c8b8.jpeg)
+![WhatsApp Image 2023-02-05 at 5 06 22 PM (8)](https://user-images.githubusercontent.com/116287208/216851030-a9d058e1-7979-4f1c-a982-2e388850edfb.jpeg)
+![WhatsApp Image 2023-02-05 at 5 06 22 PM (9)](https://user-images.githubusercontent.com/116287208/216851031-565b5f05-0f90-425a-8d42-56d87ab431e2.jpeg)
+![WhatsApp Image 2023-02-05 at 5 06 22 PM (10)](https://user-images.githubusercontent.com/116287208/216851032-53e69688-eab6-4996-af36-3c0e69e6450d.jpeg)
+
+<hr>
+
+THE UNION
+
+CAPA
+
+
+![capa](https://user-images.githubusercontent.com/116287208/216851094-c728c849-a16a-497b-a1bb-42716fb075a3.jpg)
+
+![20171127_161816](https://user-images.githubusercontent.com/116287208/216851102-5e00b552-a3ea-44d9-b721-8f787db3619e.jpg)
+![20171127_161903](https://user-images.githubusercontent.com/116287208/216851104-d6f97e1c-1285-4f8f-9c9f-5b4144fcc622.jpg)
+![20171127_161907](https://user-images.githubusercontent.com/116287208/216851106-a39453a5-08fa-432f-b67a-09b153b02105.jpg)
+![20171127_161917](https://user-images.githubusercontent.com/116287208/216851108-c9f8f231-52f2-4821-b190-4ab926af8222.jpg)
+![20171127_161929](https://user-images.githubusercontent.com/116287208/216851109-c5694567-06cf-4f54-a6d8-89b6ec57ac9e.jpg)
+![20171127_161943](https://user-images.githubusercontent.com/116287208/216851110-556defb6-1282-4275-a3b4-f516eb1fd8d2.jpg)
+![20171127_161959](https://user-images.githubusercontent.com/116287208/216851111-71c842b0-7d51-4d7a-b3e5-cbd8def0b7c0.jpg)
+![20171127_162004](https://user-images.githubusercontent.com/116287208/216851113-7c095594-1011-4778-bda1-8e9a85d8b24d.jpg)
+![20171127_162130](https://user-images.githubusercontent.com/116287208/216851114-0485c3e0-ee68-420e-b576-4a365565a0db.jpg)
+![20171127_162241](https://user-images.githubusercontent.com/116287208/216851115-0d67e48b-28fa-4475-b783-77edd3ebfc8f.jpg)
+![20171127_162332](https://user-images.githubusercontent.com/116287208/216851117-4f580218-fd84-4354-86fc-9d3020ca0871.jpg)
+![20171127_162337](https://user-images.githubusercontent.com/116287208/216851118-66626d9d-ed92-4349-b607-18e8b4a2dab7.jpg)
+![20171127_162354](https://user-images.githubusercontent.com/116287208/216851119-18c0a4c4-1613-4859-b669-e1178ccce82c.jpg)
+![20171127_162358](https://user-images.githubusercontent.com/116287208/216851121-31d7cf1e-4051-4e89-9b8e-1d41a07f5583.jpg)
+![20171127_162418](https://user-images.githubusercontent.com/116287208/216851123-f271da94-bf7d-4881-8292-bcba3db6ac57.jpg)
+![20171127_162421](https://user-images.githubusercontent.com/116287208/216851125-2941a2e4-e94c-4787-8525-c52c603c0548.jpg)
+![20171127_162424](https://user-images.githubusercontent.com/116287208/216851126-84fa447e-b000-44fa-856e-2925e409739f.jpg)
+![20171127_162435](https://user-images.githubusercontent.com/116287208/216851127-adb8c519-c612-4473-a3fe-6aac37fae53f.jpg)
+![20171127_162511](https://user-images.githubusercontent.com/116287208/216851128-c28a278d-7e24-4e51-b095-69e18a0288e4.jpg)
+![20171127_162513](https://user-images.githubusercontent.com/116287208/216851129-672f4742-35b1-4cbf-9f25-d2ef46847587.jpg)
+![20171127_162546](https://user-images.githubusercontent.com/116287208/216851130-409bed7f-b20a-4186-8112-263e333eafde.jpg)
+![20171127_162742](https://user-images.githubusercontent.com/116287208/216851131-476ab14b-5ad1-44e9-b4d3-02692394823b.jpg)
+![20171127_161706](https://user-images.githubusercontent.com/116287208/216851132-f6c9dbfa-62bd-4bce-bad6-d7ebb8915c5a.jpg)
+![20171127_161716](https://user-images.githubusercontent.com/116287208/216851133-6c8efca1-b444-4133-be63-34547d22d230.jpg)
+![20171127_161721](https://user-images.githubusercontent.com/116287208/216851135-73e90303-f982-4122-812c-8f70e55e631f.jpg)
+![20171127_161728](https://user-images.githubusercontent.com/116287208/216851136-50dd87be-885e-4af8-a2b8-480c271d24d7.jpg)
+![20171127_161734](https://user-images.githubusercontent.com/116287208/216851137-2e8a3ee7-b7e2-4356-b6b4-60737dd90f7c.jpg)
+![20171127_161737](https://user-images.githubusercontent.com/116287208/216851138-3d3fb03e-df6d-4122-977f-30f26de1334c.jpg)
+![20171127_161746](https://user-images.githubusercontent.com/116287208/216851139-a3de806d-4e19-4b0c-8406-b7f2a02fcfb1.jpg)
+![20171127_161757](https://user-images.githubusercontent.com/116287208/216851140-0acee107-acb8-4085-b910-315035f7b3ac.jpg)
+![20171127_161804](https://user-images.githubusercontent.com/116287208/216851141-d8a30f7a-2974-4c40-a73d-b233d23db33e.jpg)
+![20171127_161808](https://user-images.githubusercontent.com/116287208/216851142-1a6b826c-8947-4527-b284-bb66b23eb3f2.jpg)
