@@ -32,12 +32,12 @@ FIM DO LIFE RESORT
 
 CAPA
 
-![CAPA](https://user-images.githubusercontent.com/116287208/216793465-7a30c2be-17eb-4a4e-92aa-28863213e215.jpg)
+![WhatsApp Image 2023-02-12 at 6 21 32 AM](https://user-images.githubusercontent.com/116287208/218314952-228ccf58-8969-46c3-afaf-bbeef54192aa.jpeg)
 
 <hr>
 
 ![02](https://user-images.githubusercontent.com/116287208/216793481-822b187a-fad3-498a-bc4b-0e9b0f9a0755.jpg)
-
+![CAPA](https://user-images.githubusercontent.com/116287208/216793465-7a30c2be-17eb-4a4e-92aa-28863213e215.jpg)
 ![03](https://user-images.githubusercontent.com/116287208/216793484-6fd50854-d041-49ca-be21-a75cf81674b5.jpg)
 ![04](https://user-images.githubusercontent.com/116287208/216793490-cc6f7e66-22e4-4b4d-bbc5-5327aeae2c30.jpg)
 ![05](https://user-images.githubusercontent.com/116287208/216793491-0278f88b-4868-45a2-b682-9060c2d48607.jpg)
