@@ -178,3 +178,39 @@ CAPA
 ![20171127_161757](https://user-images.githubusercontent.com/116287208/216851140-0acee107-acb8-4085-b910-315035f7b3ac.jpg)
 ![20171127_161804](https://user-images.githubusercontent.com/116287208/216851141-d8a30f7a-2974-4c40-a73d-b233d23db33e.jpg)
 ![20171127_161808](https://user-images.githubusercontent.com/116287208/216851142-1a6b826c-8947-4527-b284-bb66b23eb3f2.jpg)
+
+<hr>
+
+IMOVEL RESIDENCIAL 
+
+![1 - IMOVEL RESIDENCIAL](https://user-images.githubusercontent.com/116287208/218880191-38f893fd-d102-4c2f-98e0-f0a98753a6ef.jpeg)
+
+<hr>
+
+LOTUS
+
+![2 - LOTUS](https://user-images.githubusercontent.com/116287208/218880224-d1194cbc-c6b5-4d6c-8f36-dee76bcd7e6d.jpg)
+
+<hr>
+
+imovel residencial
+
+![3 - IMOVEL RESIDENCIAL](https://user-images.githubusercontent.com/116287208/218880257-b3d27d5c-fe72-4b91-bbaf-4e891412d923.jpeg)
+![3 1- IMOVEL RESIDENCIAL](https://user-images.githubusercontent.com/116287208/218880263-ba1473c9-b2a8-4edc-9756-0e0805ac33ab.jpeg)
+
+<hr>
+
+salas comerciais
+
+
+![4 - SALAS COMERCIAIS](https://user-images.githubusercontent.com/116287208/218880314-ff95a257-d3b5-4947-b8e8-301291e60274.jpeg)
+![4 1 - SALAS COMERCIAIS](https://user-images.githubusercontent.com/116287208/218880322-df92d12c-1cf8-4bd9-81e4-c9806a2c6d4b.jpeg)
+
+<hr>
+
+aluguel misto
+
+![5 - ALUGUEL MISTO](https://user-images.githubusercontent.com/116287208/218880439-0c10da08-bace-4c1d-8a36-811396910677.jpeg)
+
+
+
