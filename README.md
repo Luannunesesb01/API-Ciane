@@ -213,4 +213,21 @@ aluguel misto
 ![5 - ALUGUEL MISTO](https://user-images.githubusercontent.com/116287208/218880439-0c10da08-bace-4c1d-8a36-811396910677.jpeg)
 
 
+<hr>
+
+CLINICA PETS
+
+![1 0](https://user-images.githubusercontent.com/116287208/219200083-b1318c34-be9c-40a9-ab09-c678c345b311.jpg)
+
+![1 1](https://user-images.githubusercontent.com/116287208/219202558-6895b2d7-c41e-484a-854d-3eb1f0305965.jpg)
+
+![1 2](https://user-images.githubusercontent.com/116287208/219202606-4b616f95-c3bb-4313-833f-1dc505b08e3c.jpg)
+
+<hr>
+
+Oticas
+
+![2 0](https://user-images.githubusercontent.com/116287208/219204248-9fb25ee5-a358-4257-89ec-be5b719af4db.jpg)
+
+![2 1](https://user-images.githubusercontent.com/116287208/219204268-7c7c13f9-2cea-400f-8c94-5b859edee06c.jpg)
 
