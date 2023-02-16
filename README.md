@@ -231,3 +231,14 @@ Oticas
 
 ![2 1](https://user-images.githubusercontent.com/116287208/219204268-7c7c13f9-2cea-400f-8c94-5b859edee06c.jpg)
 
+<hr>
+
+IGNORE
+
+![1](https://user-images.githubusercontent.com/116287208/219461640-272d7c2c-d829-4a30-b766-406af17de89f.jpg)
+![2](https://user-images.githubusercontent.com/116287208/219461656-8af00d2e-0ef7-403b-979b-c5f325a6b853.jpg)
+![3](https://user-images.githubusercontent.com/116287208/219461665-80428de6-b75a-4e84-875b-c55c87abf747.jpg)
+![4](https://user-images.githubusercontent.com/116287208/219461767-526cfee3-d148-4cf2-b929-cf7865d0c7ef.jpg)
+![5](https://user-images.githubusercontent.com/116287208/219461789-53ee7802-f0a3-46a9-88d6-daf587a115fb.jpeg)
+
+
